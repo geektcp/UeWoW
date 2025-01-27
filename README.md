@@ -1,7 +1,7 @@
 量子魔兽
 ==========================================
 
-[http:/kkwww.com](http:/kkwww.com)
+[http:/uewow.com](http:/uewow.com)
 
 
 ## 面向全球玩家开放的魔兽世界的服务器
